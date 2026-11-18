@@ -1,2 +1,2 @@
-Lögen är en bozo!
+MSc student at Chalmers University of Technology.
 
